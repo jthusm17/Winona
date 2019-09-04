@@ -21,4 +21,4 @@ has a disco ball that they turn on for a while when they dim the lights. they al
 
  * [Acoustic Cafe](https://jthusm17.github.io/Winona/AcousticCafe)
  * [Zesto's](https://jthusm17.github.io/Winona/Zesto)
- * [Main Page](https://jthusm17.github.io/Winona
+ * [Main Page](https://jthusm17.github.io/Winona)
