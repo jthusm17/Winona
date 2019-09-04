@@ -1,4 +1,4 @@
-# Zezto's
+# Zesto's
 
 Zesto's, also know as *Penguin Zesto's*, is a popular local restaurant that 
 
