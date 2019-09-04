@@ -1,7 +1,7 @@
 # Bud King Ice Arena
 The Bud King Ice Arena is home of the *Winona Winhawks*, the public school hockey team. 
 
-![Outside the Building](https://cdn3.sportngin.com/attachments/text_block/0364/3775/IMG_2203_medium.JPG)
+![Outside the Building](https://cdn3.sportngin.com/attachments/text_block/0364/3775/IMG_2203_medium.JPG) *Outside View*
 
 You can watch their hockey matches there for entertainment purposes, but thats not all. 
 
