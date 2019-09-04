@@ -6,7 +6,7 @@ delictible treats like ice cream (I recommend the *Chocolate Dip*). It are locat
 
 and West ends of Winona, and close down after the Summer has passed. Sales tax is already added to the price tag,
 
-and each item has a well rounded cost. For example, a medium cone cost exactly $2.50
+and each item has a well rounded cost. For example, a medium cone costs exactly $2.50
 
 ![Zesto's East](https://media-cdn.tripadvisor.com/media/photo-s/0c/17/1e/4e/penguin-zesto-east-winona.jpg)
 
