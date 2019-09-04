@@ -6,17 +6,17 @@ delictible treats like ice cream (I recommend the *Chocolate Dip*). It are locat
 
 and West ends of Winona, and close down after the Summer has passed. Sales tax is already added to the price tag,
 
-and each item is has a well rounded cost, like a mediem cone for $2.50
+and each item has a well rounded cost. For example, a medium cone cost exactly $2.50
 
 ![Zesto's East](https://media-cdn.tripadvisor.com/media/photo-s/0c/17/1e/4e/penguin-zesto-east-winona.jpg)
 
-Zesto's **East** is fashioned like a barn and serves customers outdoors. 
+Zesto's **East** is fashioned like a barn and serves customers outdoors. You order and eat outside.
 
 ![Zesto's West](https://media-cdn.tripadvisor.com/media/photo-s/0c/97/60/1c/penguin-zesto-west-goodview.jpg) 
 
-Zesto's **West** is a more standard walk-in restaurant, but only holds tables outside the building. Both building's are outdoor themed,
+Zesto's **West** is a more standard walk-in restaurant where you order inside, but only holds tables outside the building.
 
-and are popular summer choices for easy or confrotable meals.
+They are popular summer choices for easy or confrotable meals or if you want some delicious ice cream.
 
 ### [See some Reviews](https://www.tripadvisor.com/Restaurant_Review-g43648-d4892646-Reviews-Penguin_Zesto_West-Winona_Minnesota.html)
 
