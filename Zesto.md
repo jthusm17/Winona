@@ -8,11 +8,11 @@ and West ends of Winona, and close down after the Summer has passed. Sales tax i
 
 and each item is has a well rounded cost, like a mediem cone for $2.50
 
-![Zesto's East](https://media-cdn.tripadvisor.com/media/photo-s/0c/17/1e/4e/penguin-zesto-east-winona.jpg)
+![Zesto's East](https://media-cdn.tripadvisor.com/media/photo-s/0c/17/1e/4e/penguin-zesto-east-winona.jpg) *Zesto's East*
 
 Zesto's **East** is fashioned like a barn and serves customers outdoors. 
 
-![Zesto's West](https://media-cdn.tripadvisor.com/media/photo-s/0c/97/60/1c/penguin-zesto-west-goodview.jpg)
+![Zesto's West](https://media-cdn.tripadvisor.com/media/photo-s/0c/97/60/1c/penguin-zesto-west-goodview.jpg) *Zesto's West*
 
 Zesto's **West** is a more standard walk-in restaurant, but only holds tables outside the building. Both building's are outdoor themed,
 
