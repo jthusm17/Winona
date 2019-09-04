@@ -1,6 +1,6 @@
 # Zesto's
 
-Zesto's, also know as *Penguin Zesto's*, is a popular local restaurant that serves food, as well as 
+Zesto's, officially known as *The Penguin Zesto's*, is a popular local restaurant that serves food, as well as 
 
 delictible treats like ice cream (I recommend the *Chocolate Dip*). It are located at both the East
 
