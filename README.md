@@ -29,10 +29,10 @@ Below you will find a **List** on those things, so go ahead and take a look.
     
       go to relax and enjoy some hot drinks or food.
   
-  ## Pick What Interests You
+## Pick What Interests You
   
-  Learn a little bit about *Winona* and some of the thing it offers. There are many things
+Learn a little bit about *Winona* and some of the thing it offers. There are many things
   
-  of interest, but you may like these in particular
+of interest, but you may like these in particular
   
   
