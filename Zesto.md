@@ -18,7 +18,9 @@ Zesto's **West** is a more standard walk-in restaurant where you order inside, b
 
 They are popular summer choices for easy or confrotable meals or if you want some delicious ice cream.
 
-### [See some Reviews](https://www.tripadvisor.com/Restaurant_Review-g43648-d4892646-Reviews-Penguin_Zesto_West-Winona_Minnesota.html)
+### [See Some Reviews](https://www.tripadvisor.com/Restaurant_Review-g43648-d4892646-Reviews-Penguin_Zesto_West-Winona_Minnesota.html)
+
+##### They dont have a website, far as I could tell 
 
 ## Other Places
  * [Bud King Ice Arena](https://jthusm17.github.io/Winona/BudKingIceArena)
