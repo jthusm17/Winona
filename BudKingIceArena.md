@@ -17,7 +17,7 @@ has a disco ball that they turn on for a while when they change the music. they 
 
 *Inside View*
 
-**You can learn more about it [Here](https://user-images.githubusercontent.com/54552549/64226304-78505600-cea4-11e9-9ee9-1c94c68242e6.jpg)**
+**[Visit Their Website Here](https://user-images.githubusercontent.com/54552549/64226304-78505600-cea4-11e9-9ee9-1c94c68242e6.jpg)**
 
 ### Other places
 
