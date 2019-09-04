@@ -9,19 +9,19 @@ The best things you could imagine
 
 Below you will find a **List** on those things, so go ahead and take a look.
 
-  * [Bud King Ice Arena](https://github.com/jthusm17/Winona/blob/master/BudKingIceArena.md)
+  * [Bud King Ice Arena](https://jthusm17.github.io/Winona/BudKingIceArena)
     
     A local **Hockey Rink** by the river.
   
-  * [Zesto's](https://github.com/jthusm17/Winona/blob/master/Zesto.md)
+  * [Zesto's](https://jthusm17.github.io/Winona/Zesto)
   
    A familiar, remarkable, and small **Fast-Food** business.
    
-  * [Acoustic Cafe](https://github.com/jthusm17/Winona/blob/master/AcousticCafe.md)
+  * [Acoustic Cafe](https://jthusm17.github.io/Winona/AcousticCafe)
   
     Small food and drink **Cafe** downtown.
   
-  ## Pick What interests you
+  ### Pick What interests *you*
   
   Learn a little bit about *Winona* and some of the thing it offers.
   
