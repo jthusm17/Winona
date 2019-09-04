@@ -18,7 +18,9 @@ Zesto's **West** is a more standard walk-in restaurant, but only holds tables ou
 
 and are popular summer choices for easy or confrotable meals.
 
-### [Learn more](https://www.tripadvisor.com/Restaurant_Review-g43648-d4892646-Reviews-Penguin_Zesto_West-Winona_Minnesota.html)
+## [Learn more](https://www.tripadvisor.com/Restaurant_Review-g43648-d4892646-Reviews-Penguin_Zesto_West-Winona_Minnesota.html)
 
- * [Bud King](https://jthusm17.github.io/Winona/BudKingIceArena)
- * [Acoustic](https://jthusm17.github.io/Winona/AcousticCafe)
+### Other Places
+ * [Bud King Ice Arena](https://jthusm17.github.io/Winona/BudKingIceArena)
+ * [Acoustic Cafe](https://jthusm17.github.io/Winona/AcousticCafe)
+ * [Main Page](https://jthusm17.github.io/Winona)
