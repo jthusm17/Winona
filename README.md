@@ -3,6 +3,8 @@ Welcome to Winona and there are things here. Some fo which may
 
 interest you, or at the very least hold your attention for about 7 seconds...
 
+![Winona Minnesota](http://www.twincitiesdailyphoto.com/2007/winona_garvin_heights-01.jpg)
+
 ## What kind of things?
 The best things you could imagine
 
